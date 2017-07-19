@@ -8,6 +8,7 @@ Caleb McDaniel notes that unlike the reproducible experiments of scientists, ope
 
 This [article](https://www.thoughtco.com/what-is-historical-context-1857069) titled *The Importance of Historical Context in Analysis and Interpretation* gives important insight into how crucial specific context is in contributing to the narrative of a historian. How one interprets and chooses to present their individual analysis of context translates into their own individual version, or narrative, of the story. The University of Minnesota describes the importance of ["paying close attention to the people who produced it, the time in which they worked, what was going on at that time, and how what was going on may have influenced the production."](https://www.lib.umn.edu/bell/Historical%20Context) While this quote was dealing with analyzing historical sources, it is just as relevant in describing what might be gained through the use of open notes. These bits of context would help future readers to understand where the historian was coming from, and in turn help to further the study of the topic through different interpretations of the same source data. 
 
-![different interpretations of given context would result in the proliferation of ideas](https://goo.gl/images/pRJL4t)
+![different interpretations of given context would result in the proliferation of ideas](https://c1.staticflickr.com/5/4029/5134654297_cb4487f426_b.jpg)
+Photo by: Khalid Albaih. Found at: [https://www.flickr.com/photos/khalidalbaih/5134654297]
 
 
